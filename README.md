@@ -1,0 +1,5 @@
+#BloodyLock
+BloodyLock - Doxxing Tool
+
+FULL CREDITS TO THE DEVELOPERS
+THAT MADE THE TOOLS USED ON BL
